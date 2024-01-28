@@ -1,1 +1,1 @@
-# sliderimages
+https://ashishrautela123.github.io/sliderimages/
